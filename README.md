@@ -8,6 +8,6 @@ $\color{#455c18}{Bet~ you'll~ be~ surprised~.~}$
 
 <img width="70" src="https://komarev.com/ghpvc/?username=CHANCEFORSAKEN&color=51512b&label=tickets">
 
-whisp2int!ㅤㅤdon't be afraid to approach me, i love making new friends ( ◜‿◝ )♡
+whisp2int!ㅤㅤdon't be afraid to approach me, i LOOVE making new friends!!!!! Hell yes!!!
 
 [atabook](https://elliotspizza.atabook.org/) [main strawpage](https://harlequinstent.straw.page/) [prns.cc](https://pronouns.cc/@chanceforsaken)
