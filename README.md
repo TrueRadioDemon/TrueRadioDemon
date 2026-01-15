@@ -13,7 +13,7 @@ $\textcolor{#1d3543}{\text{✦}}$
 <img width="70" src="https://komarev.com/ghpvc/?username=CHANCEFORSAKEN&color=431f1d&label=scripts">
 
 $\textcolor{#3b3838}{\text{Whisper to interact preferably! I'm always offtab, but I enjoy people cuddling me ୭ @Pixelbricks @MisasLove + heidi < BOOMFS!!}}$
-$\textcolor{#1d3543}{\text{@WithoutAndrew < I forgive you.}}$
+$\textcolor{#1d3543}{\text{@CameraFlash < Hi Black Sapphire Cookie}}$
 
 [atabook](https://elliotspizza.atabook.org/) [main strawpage](https://harlequinstent.straw.page/) [prns.cc](https://pronouns.cc/@chanceforsaken)
 
