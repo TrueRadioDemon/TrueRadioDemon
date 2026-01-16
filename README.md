@@ -1,20 +1,20 @@
 <div align="center">
 
-$\textcolor{#631c37}{\text{I want things to be beautiful.}}$
+$\textcolor{#677777}{\text{I could never choose to love another...}}$
 
-$\textcolor{#3b3838}{\text{✦}}$
+$\textcolor{#89856f}{\text{✦}}$
 
-![Image Alt](https://github.com/HarlequinsPuppet/HarlequinsPuppet/blob/0e9a67453ea9fe806447b939236abaadd571d345/Untitled10_20260113141627.png)
+![Image Alt](https://github.com/ViridescentDaydream/ViridescentDaydream/blob/755088e540f03c5495896863553021dc5561d038/Viridescent_daydream.webp)
 
-$\textcolor{#631c37}{\text{Forgot things could be beautiful.}}$
+$\textcolor{#677777}{\text{Maybe one day, I can learn to love... you, too.}}$
 
-$\textcolor{#1d3543}{\text{✦}}$
+$\textcolor{#89856f}{\text{✦}}$
 
-<img width="70" src="https://komarev.com/ghpvc/?username=CHANCEFORSAKEN&color=431f1d&label=scripts">
+<img width="70" src="https://komarev.com/ghpvc/?username=CHANCEFORSAKEN&color=38475b&label=faeries">
 
-$\textcolor{#3b3838}{\text{Whisper to interact preferably! I'm always offtab, but I enjoy people cuddling me ୭ @Pixelbricks @MisasLove + heidi < BOOMFS!!}}$
-$\textcolor{#1d3543}{\text{@CameraFlash < Hi Black Sapphire Cookie}}$
+$\textcolor{#365378}{\text{Whisper to interact preferably! I'm always offtab, but I enjoy people cuddling me ୭ @Pixelbricks @MisasLove + heidi < BOOMFS!!}}$
+$\textcolor{#365378}{\text{@SilencedHeart < Hi Black Sapphire Cookie}}$
 
 [atabook](https://elliotspizza.atabook.org/) [main strawpage](https://harlequinstent.straw.page/) [prns.cc](https://pronouns.cc/@chanceforsaken)
 
-$\textcolor{#1d3543}{\text{i love harlequin and ticket taker. andrew is kinda me}}$
+$\textcolor{#365378}{\text{Hush now, keep your eyes closed.}}$
