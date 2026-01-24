@@ -1,20 +1,21 @@
 <div align="center">
 
-$\textcolor{#677777}{\text{I could never choose to love another...}}$
+$\textcolor{#704d16}{\text{" Another door, another question...? "}}$
 
-$\textcolor{#89856f}{\text{✦}}$
+$\textcolor{#b39836}{\text{✦}}$
 
-![Image Alt](https://github.com/ViridescentDaydream/ViridescentDaydream/blob/755088e540f03c5495896863553021dc5561d038/Viridescent_daydream.webp)
+![Image Alt](https://github.com/ENDLESS-DOORS/ENDLESS-DOORS/blob/3cfbf59bc62812cff949d5dffbb79438b17b616e/Untitled18_20260124130803.png)
 
-$\textcolor{#677777}{\text{Maybe one day, I can learn to love... you, too.}}$
+$\textcolor{#704d16}{\text{Going 'round in circles, wond'ring when I'll reach the end.}}$
 
-$\textcolor{#89856f}{\text{✦}}$
+$\textcolor{#b39836}{\text{✦}}$
 
 <img width="70" src="https://komarev.com/ghpvc/?username=CHANCEFORSAKEN&color=38475b&label=faeries">
 
-$\textcolor{#365378}{\text{Whisper to interact preferably! I'm always offtab, but I enjoy people cuddling me ୭ @Pixelbricks @MisasLove + heidi < BOOMFS!!}}$
-$\textcolor{#89856f}{\text{@SilencedHeart < My online father! Love youu dadd!!}}$
+$\textcolor{#704d16}{\text{Whisper to interact preferably! I'm always offtab, but I enjoy people cuddling me ୭ @Pixelbricks @MisasLove + heidi < BOOMFS!!}}$
+$\textcolor{#9c7e2b}{\text{@SilencedHeart < My online father! Love youu dadd!!}}$
 
 [atabook](https://elliotspizza.atabook.org/) [main strawpage](https://harlequinstent.straw.page/) [prns.cc](https://pronouns.cc/@chanceforsaken)
 
-$\textcolor{#365378}{\text{Hush now, keep your eyes closed.}}$
+$\textcolor{#b39836}{\text{I'm losing, the sense of where I am.}}$
+$\textcolor{#704d16}{\text{I LOVE ENDLESS TORMENT TRIO}}$
